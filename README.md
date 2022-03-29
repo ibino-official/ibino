@@ -9,8 +9,8 @@ You can share your creations and learn from others shared creations for free eas
 
 By uploading your projects on ibino you can gain a lot of attention from users, get feedback from other users and skilled developers to make your project even more better.
 
-You can also earn money by selling projects in ibino
+Also has training services
 
-And has an educational section
+and You can also earn money by selling projects in ibino
 
 <a href="https://ibino.ir">Login to the website</a>
