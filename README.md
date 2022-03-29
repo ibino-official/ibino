@@ -11,4 +11,6 @@ By uploading your projects on ibino you can gain a lot of attention from users, 
 
 You can also earn money by selling projects in ibino
 
+And has an educational section
+
 <a href="https://ibino.ir">Login to the website</a>
